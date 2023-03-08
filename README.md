@@ -5,7 +5,7 @@ The Boy Scouts of America is one of the nation’s largest and most prominent va
 
 For over a century, the BSA has helped build the future leaders of this country by combining educational activities and lifelong values with fun. The Boy Scouts of America believes — and, through over a century of experience, knows — that helping youth is a key to building a more conscientious, responsible, and productive society.
 
-In February 2019, for the firt time in its 100+ year hitory, the BSA opened to young women fifth grade through high school. Troop 4 is one of the earliest all female troop in BSA history. 
+In February 2019, for the firt time in its 100+ year history, the BSA opened to young women fifth grade through high school. Troop 4 is one of the earliest all female troop in BSA history. 
 
 Camping
 
